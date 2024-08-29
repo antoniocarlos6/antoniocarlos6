@@ -12,5 +12,5 @@ antonio.nascimento27@escola.pr.gov.br
 
 @antoniocarlos
 
-[](https://media1.tenor.com/m/WKs2jFwg9OgAAAAd/endrick-endrick-real-madrid.gif)
+![](https://media1.tenor.com/m/WKs2jFwg9OgAAAAd/endrick-endrick-real-madrid.gif)
 
